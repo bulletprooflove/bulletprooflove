@@ -1,6 +1,6 @@
 
 
-![ptv](https://github.com/bulletprooflove/bulletprooflove/blob/main/1e70595b0aa5fa770473ce29de1be9dd.jpg?raw=true)
+![ptv](https://github.com/bulletprooflove/bulletprooflove/blob/main/b69d7fedbbd8f303de0cc77001c46490%20(1).jpg?raw=true)
                i love him sm
 
 
